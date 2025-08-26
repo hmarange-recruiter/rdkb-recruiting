@@ -13,4 +13,4 @@ We're currently looking for an experienced **Software Engineer** with expertise 
 🚫 No remote option  
 🧠 Domain: Gateways / Routers (Telecom)
 
-Interested? Contact me here or on LinkedIn: [linkedin.com/in/votrenom](https://linkedin.com/in/votrenom)
+Interested? Contact me here or on LinkedIn: [https://www.linkedin.com/in/helene-m-9092a274/)
